@@ -1,2 +1,4 @@
 ## Netflix
 ![image](https://github.com/user-attachments/assets/9c56b366-6b6d-48aa-ad1a-8dd914ccc4dd)
+
+![image](https://github.com/user-attachments/assets/d369f7d4-6c84-4c87-a8fd-e49c05c022d7)
